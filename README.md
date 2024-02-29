@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓 SMU Information Systems; major in Business Analytics<br>🇪🇸 Currently on exchnage in Esade, Barcelona<br>💻 Looking for a summer internship
+🎓 SMU Information Systems; major in Business Analytics<br>🇪🇸 Currently on exchange in Esade, Barcelona<br>💻 Looking for a summer internship
 
 
 ## 🌐 Socials:
