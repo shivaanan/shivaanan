@@ -1,5 +1,5 @@
-# 💫 About Me:
-🎓 SMU Information Systems; major in Business Analytics<br>🇪🇸 Currently on exchange in Esade, Barcelona<br>💻 Looking for a summer internship
+# 👋🏾 Hi, I'm Shiva
+🎓 SMU Information Systems penultimate year; major in Business Analytics<br>🇪🇸 Currently on exchange in Esade, Barcelona<br>💻 Looking for a summer internship
 
 
 ## 🌐 Socials:
