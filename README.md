@@ -1,5 +1,5 @@
 # 👋🏾 Hi, I'm Shiva
-🎓 SMU Information Systems penultimate year; major in Business Analytics<br>
+🎓 Final year SMU Information Systems, Business Analytics
 
 
 ## 🌐 Socials:
