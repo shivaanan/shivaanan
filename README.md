@@ -1,5 +1,5 @@
 # 👋🏾 Hi, I'm Shiva
-🎓 Final year SMU Information Systems, Business Analytics
+🎓 SMU Information Systems, Business Analytics fresh graduate
 
 
 ## 🌐 Socials:
